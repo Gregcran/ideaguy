@@ -1,0 +1,2 @@
+# ideaguy
+Ideas for leads 
